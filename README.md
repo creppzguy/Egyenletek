@@ -1,1 +1,1 @@
-# Egyenletek
+Hitler nem csinált semmi rosszat
